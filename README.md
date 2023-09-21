@@ -1,0 +1,4 @@
+- 👋 Hola, soy el lic. Fernando Guzmán
+- 👀 Soy egresado de la Facultad de Derecho de la Universidad de Colima
+- 🌱 Especialista en Derecho, con conocimientos tecnologicos.
+- 📫 Nos pueden contactar al correo lic.fernando.guzman.col@gmail.com y al número de telefono 3121142592 
